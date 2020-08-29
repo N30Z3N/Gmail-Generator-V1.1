@@ -1,2 +1,4 @@
-# Gmail-Generator-V1.1
-Gmail Generator Version 1.1
+[ I Am Not Responsible For Any Accounts Cracked With This ]
+
+
+Start The GmailGenerator.exe To Start
